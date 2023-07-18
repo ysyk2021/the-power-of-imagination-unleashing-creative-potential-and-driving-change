@@ -8,7 +8,6 @@ Through real-life examples, expert insights, and practical strategies, this book
 
 Whether you're an entrepreneur, leader, artist, or anyone seeking to unlock their full creative potential, "The Power of Imagination: Unleashing Creative Potential and Driving Change" will serve as a valuable resource. It aims to empower readers to unleash their creativity, overcome common barriers to imagination, and create a better future through imaginative thinking and action.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
