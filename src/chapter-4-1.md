@@ -1,4 +1,4 @@
-Chapter 7: Strategies for Cultivating Creativity to Unleash Imagination
+Strategies for Cultivating Creativity to Unleash Imagination
 =======================================================================
 
 In this chapter, we will explore effective strategies for cultivating creativity to unleash imagination. These strategies will help individuals tap into their creative potential, overcome mental barriers, and foster an environment of innovation and change.

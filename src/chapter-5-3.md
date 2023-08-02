@@ -1,4 +1,4 @@
-Chapter 8: Overcoming Common Challenges with Using Imagination for Problem-Solving
+Overcoming Common Challenges with Using Imagination for Problem-Solving
 ==================================================================================
 
 In this chapter, we will explore common challenges that individuals may encounter when using imagination for problem-solving and provide strategies to overcome them. While imagination is a powerful tool, it is essential to address these challenges to fully unleash its potential in driving effective solutions.
