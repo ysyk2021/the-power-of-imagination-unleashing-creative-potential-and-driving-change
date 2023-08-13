@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [Explanation of the book's purpose and goals](chapter-1-1.md)
-  - [Overview of the contents and structure of the book](chapter-1-2.md)
 - [Chapter 1: Defining Imagination](chapter-2.md)
   - [Defining imagination and its importance in driving change](chapter-2-1.md)
   - [The benefits of using imagination to unleash creative potential](chapter-2-2.md)
