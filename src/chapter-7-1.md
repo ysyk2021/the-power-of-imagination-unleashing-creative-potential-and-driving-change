@@ -1,5 +1,3 @@
-Techniques for Leveraging Imagination for Social Impact and Driving Positive Change
-========================================================================================================================================
 
 In this chapter, we will explore some specific techniques for leveraging imagination for social impact and driving positive change. These techniques can be used to develop innovative solutions to complex social problems and make a meaningful impact in the world.
 

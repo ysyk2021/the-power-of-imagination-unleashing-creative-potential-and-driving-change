@@ -1,5 +1,3 @@
-Overcoming Common Barriers to Imagination Assessment
-===============================================================
 
 In this chapter, we will explore the common barriers that individuals may face when assessing their imagination. We will discuss strategies and techniques to overcome these barriers, allowing individuals to unlock their creative potential and harness the power of imagination.
 

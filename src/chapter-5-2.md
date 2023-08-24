@@ -1,5 +1,3 @@
-Techniques for Reframing Problems and Identifying Novel Solutions
-=====================================================================================================================
 
 In this chapter, we will explore some specific techniques for applying imagination to problem-solving. These techniques can help you reframe problems and identify novel solutions that drive positive change.
 

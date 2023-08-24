@@ -1,5 +1,3 @@
-Chapter 2: Assessing Your Imagination Skills
-============================================
 
 In this chapter, we will explore techniques for assessing your current level of imagination skills, identifying areas for improvement, and overcoming common barriers to imagination assessment.
 

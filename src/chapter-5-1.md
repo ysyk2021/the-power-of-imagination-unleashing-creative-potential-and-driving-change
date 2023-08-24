@@ -1,5 +1,3 @@
-Strategies for Applying Imagination to Problem-Solving
-=================================================================
 
 In this chapter, we will explore effective strategies for applying imagination to problem-solving. These strategies will help individuals harness the power of their imagination and drive creative solutions to complex challenges.
 

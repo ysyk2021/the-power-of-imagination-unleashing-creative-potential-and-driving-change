@@ -1,5 +1,3 @@
-Chapter 1: Defining Imagination
-===============================
 
 In this chapter, we will explore the definition of imagination, its importance in driving change, the benefits of using imagination to unleash creative potential, and real-life examples of successful imagination in action.
 

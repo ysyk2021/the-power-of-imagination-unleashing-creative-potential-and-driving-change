@@ -1,5 +1,3 @@
-Strategies for Identifying and Targeting Social Issues
-===========================================================================================================
 
 Imagination can be a powerful force for driving social impact. By using our imaginations to identify and target social issues, we can develop innovative solutions that bring about positive change. In this chapter, we will explore some strategies for identifying and targeting social issues using imagination.
 

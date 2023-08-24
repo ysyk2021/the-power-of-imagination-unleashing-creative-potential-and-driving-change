@@ -1,5 +1,3 @@
-Chapter 5: Using Imagination for Innovation
-===========================================
 
 Innovation is a key driver of progress and growth, and imagination plays a critical role in driving innovation. In this chapter, we will explore the relationship between imagination and innovation, as well as strategies for identifying and pursuing new opportunities, and overcoming common challenges with using imagination for innovation.
 

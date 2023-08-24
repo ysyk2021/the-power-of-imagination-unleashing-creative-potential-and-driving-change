@@ -1,5 +1,3 @@
-Overcoming Common Challenges with Using Imagination for Social Impact
-==========================================================================================================================
 
 While imagination is a powerful tool for driving social impact, there are also several common challenges that can make it difficult to harness its full potential. In this chapter, we will explore some of these challenges and provide strategies for overcoming them.
 

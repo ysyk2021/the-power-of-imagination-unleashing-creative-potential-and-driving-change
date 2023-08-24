@@ -1,5 +1,3 @@
-Chapter 3: Cultivating Creativity
-=================================
 
 In this chapter, we will explore strategies for cultivating creativity to unleash imagination. By developing effective approaches to cultivating creativity, individuals can unlock their full potential and drive positive change.
 

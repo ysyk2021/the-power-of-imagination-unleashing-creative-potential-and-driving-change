@@ -1,5 +1,3 @@
-Using Data to Make Informed Decisions about Future Imagination Initiatives
-========================================================================================================
 
 Measuring success is an important part of any initiative, including those that leverage imagination for driving change. In this chapter, we will explore strategies for using data to measure the success of imagination initiatives and make informed decisions about future efforts.
 

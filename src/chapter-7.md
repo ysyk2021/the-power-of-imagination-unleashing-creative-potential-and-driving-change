@@ -1,5 +1,3 @@
-Chapter 6: Leveraging Imagination for Social Impact
-===================================================
 
 In this chapter, we will explore how imagination can be leveraged for social impact. We will discuss techniques for driving positive change, strategies for identifying and targeting social issues, and common challenges associated with using imagination for social impact.
 
